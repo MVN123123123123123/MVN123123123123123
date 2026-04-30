@@ -7,7 +7,7 @@
 
 - hanoi is full of trash,but where esle can i go, it's my homeland.
 
-- pronouns: who cares, just call me he/him. lots of furrys actually go with it/them or sth esle. but i'm different.i'm not pervert.
+- pronouns: who cares, just call me he/him, my biological pronoun.
 
 - grade 10 here wasn't so hard. but 11 is some kind of mid wave final boss.
 
